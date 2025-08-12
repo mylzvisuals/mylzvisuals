@@ -1,5 +1,10 @@
-YOO!!
-Hi! 
+🐧I'm Mylz 
+
+🆕Newbie Programmer and developer
+
+🖋️A traditional graphic designer with 3yrs+ experience 
+
+💠Hi! 
 I'm MYLZ a newbie developer and coder. Learning and exploring the development domain. 3 years+ experienced traditional graphic designing.  Majorly experienced in Ibis Paint X. Newbie in Adobe PS.<br>
 
 
